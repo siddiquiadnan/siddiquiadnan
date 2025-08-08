@@ -3,7 +3,7 @@
 - 🔭 I’m currently study at chitkara university
 - 🌱 I’m currently learning Development
 - 💬 Ask me anything related to my domain 
-- 📫 How to reach me: siddiquiad07@gmail.com
+- 📫 How to reach me: adnansidd.me@gmail.com
 - 😄 My website:[](https:/adnanlinktree.netlify.app)
 - ⚡ Fun fact: I'm comming to teen
   
